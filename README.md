@@ -1,4 +1,4 @@
-### 🐼 Hi there, i'm Filipe Guedes
+### 🐼 Hi there! I'm Filipe Guedes
 
 - *📝 18yo Portuguese student and currently working for [Black-Hosting](https://black-hosting.com) and [FCPlugins](https://fcplugins.com).*
 - *✈️ You can reach me on Discord: Broke#2255*
